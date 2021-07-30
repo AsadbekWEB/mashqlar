@@ -1,0 +1,2 @@
+# mashqlar
+dars uchun
